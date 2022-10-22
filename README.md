@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @RockStar
+- 👋 Hi, I’m Rock Star
 
